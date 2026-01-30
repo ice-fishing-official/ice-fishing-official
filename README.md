@@ -14,7 +14,7 @@
 
 ---
 
-<a href="https://cash500.vercel.app/" target="_blank" rel="noopener noreferrer">
+<a href="https://1wfafs.life/v3/6387/ice-fishing-wheel?p=r2jp" target="_blank" rel="noopener noreferrer">
   <img
     src="https://img.shields.io/badge/🎣_ИГРАТЬ_В_ICE_FISHING-ff007f?style=for-the-badge&labelColor=111827"
     alt="Играть в Ice Fishing (Айс Фишинг) с промокодом YOU2"
